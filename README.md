@@ -1,1 +1,0 @@
-# Practicee_6
